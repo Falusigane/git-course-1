@@ -1,7 +1,9 @@
 # git-course
 asfjaopfjwef
 asdfkpősdjfősdf
-sajdfpőasdjfpősdjf
-asdjkasdk jXSDasléj 
+sajdfp
 asléjsdafsd
-asdéljas
+asdéljasggggggggggggggggggggg
+
+
+valami
